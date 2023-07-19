@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fozziebaer
-- 👀 I’m interested in dogeCoin
+- 👀 I’m interested in dogeCoin an AI
 - 🌱 I’m currently learning what it is
 - 💞️ I’m looking to collaborate on renting houses for digital nomads in greece
 - 📫 How to reach me f06618aer bei google
